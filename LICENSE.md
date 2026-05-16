@@ -1,4 +1,4 @@
-# 
+# best Trading Bot for bitmex trading bot | multi-exchange-support & high-frequency is the best bitmex trading bot, featuring multi-exchange-support and high-frequency. Smart, fast,
 
 
 
